@@ -4,3 +4,4 @@ This is all Shirley's fault.
 ![pwr](images/power.jpg)
 ![sea1](images/sea12dec24-a.jpg)
 ![sea2](images/sea12dec24-b.jpg)
+![lhr](images/LHR13DEC24.jpg)
