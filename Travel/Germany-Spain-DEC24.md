@@ -5,3 +5,6 @@ This is all Shirley's fault.
 ![sea1](images/sea12dec24-a.jpg)
 ![sea2](images/sea12dec24-b.jpg)
 ![lhr](images/LHR13DEC24.jpg)
+![redsea](images/redsea.jpg)
+![alexanderplatz](images/alexanderplat.jpg)
+![lost](images/lost.jpg)
