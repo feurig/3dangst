@@ -37,3 +37,9 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 #### Wednesday
 
 ![](images/safeonthetrain.jpg)
+![](images/badenbadenweinachtsmarkt.jpg)
+![](images/badenbadenfood.jpg)
+#### Thursday
+![](images/badenbadenwindow.jpg)
+![](images/kalrsruhehbf.jpg)
+![](images/karlsruhenachstutti.jpg)
