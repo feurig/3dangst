@@ -40,6 +40,12 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/badenbadenweinachtsmarkt.jpg)
 ![](images/badenbadenfood.jpg)
 #### Thursday
-![](images/badenbadenwindow.jpg)
 ![](images/kalrsruhehbf.jpg)
 ![](images/karlsruhenachstutti.jpg)
+![](images/friedrichbad.jpg)
+![](images/echtduetshesessen.jpg)
+#### Friday
+![](images/badenbadenwindow.jpg)
+![](images/stuttiefoodie.jpg)
+![](images/farriswheel.jpg)
+#### Saturday 20DEC24
