@@ -41,12 +41,22 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/badenbadenweinachtsmarkt.jpg)
 ![](images/badenbadenfood.jpg)
 #### Thursday
+![](images/badenbadenwindow.jpg)
 ![](images/kalrsruhehbf.jpg)
 ![](images/karlsruhenachstutti.jpg)
-
-
-#### Friday
-![](images/badenbadenwindow.jpg)
 ![](images/stuttiefoodie.jpg)
 ![](images/farriswheel.jpg)
+![](images/stgflughaven.jpg)
+![](images/legroom.jpg)
+
+#### Friday
+![](images/roomwithaview.jpg)
+![](images/hotelcerevantes.jpg)
+![](images/themushroomfromours.jpg)
+![](images/theroomfromthemushroom.jpg)
+![](images/highonthemushroom.jpg)
+![](images/tapas1.jpg)
+![](images/tapas2.jpg)
+![](images/nightcap.jpg)
 #### Saturday 20DEC24
+#### Sunday 21DEC
