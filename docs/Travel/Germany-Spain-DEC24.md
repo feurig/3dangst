@@ -69,5 +69,8 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/alcazardrinks.jpg)
 ![](images/alcazar2.jpg)
 ![](images/alcazar3.jpg)
-
+![](images/carriageride1.jpg)
+![](images/carriageride2.jpg)
+![](images/carriageride3.jpg)
+![](images/lastmeal.jpg)
 #### Sunday 21DEC
