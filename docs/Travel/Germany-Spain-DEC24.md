@@ -10,8 +10,10 @@ This is all Shirley's fault.
 ![redsea](images/redsea.jpg)
 #### Saturday.
 ![alexanderplatz](images/alexanderplat.jpg)
+![](images/alexanderplatz.jpg.jpeg)
 ![lost](images/lost.jpg)
 #### Sunday
+![](images/kudamn.jpeg)
 ![](images/victorycollumn.jpg)
 ![](images/shirleyasarussian.jpg)
 ![](images/watchingus.jpg)
@@ -34,6 +36,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/koelnerdom.jpg)
 ![](images/shirleyamdom.jpg)
 ![](images/domart.jpg)
+![](images/thedom.jpeg)
 #### Wednesday
 
 ![](images/safeonthetrain.jpg)
