@@ -50,7 +50,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/stuttiefoodie.jpg)
 ![](images/farriswheel.jpg)
 ![](images/stgflughaven.jpg)
-![](images/legroom.jpg)
+![](images/noknees.jpg)
 
 #### Friday
 ![](images/roomwithaview.jpg)
@@ -76,4 +76,11 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/carriageride2.jpg)
 ![](images/carriageride3.jpg)
 ![](images/lastmeal.jpg)
-#### Sunday 21DEC
+#### Sunday 21DEC24
+![](images/spanishcountryside.jpg)
+![](images/madarrival.jpg)
+![](images/madfirstmeal.jpg)
+![](images/madgrinch.jpg)
+![](images/noimporta.jpg)
+![](images/madcarolers.jpg)
+![](images/madlate.jpg)
