@@ -14,6 +14,8 @@ This is all Shirley's fault.
 ![lost](images/lost.jpg)
 #### Sunday
 ![](images/kudamn.jpeg)
+![](images/tiergarten1.jpg)
+![](images/tiergarten2.jpg)
 ![](images/victorycollumn.jpg)
 ![](images/shirleyasarussian.jpg)
 ![](images/watchingus.jpg)
