@@ -61,7 +61,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/tapas1.jpg)
 ![](images/tapas2.jpg)
 ![](images/nightcap.jpg)
-#### Saturday 20DEC24
+#### Saturday 21DEC24
 ![](images/smallchapel.jpg)
 ![](images/lunchtapas.jpg)
 ![](images/outsidethecathedral.jpg)
@@ -76,7 +76,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/carriageride2.jpg)
 ![](images/carriageride3.jpg)
 ![](images/lastmeal.jpg)
-#### Sunday 21DEC24
+#### Sunday 22DEC24
 ![](images/spanishcountryside.jpg)
 ![](images/madarrival.jpg)
 ![](images/madfirstmeal.jpg)
@@ -84,3 +84,6 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/noimporta.jpg)
 ![](images/madcarolers.jpg)
 ![](images/madlate.jpg)
+#### Monday 2
+#### Tuesday 
+#### Wednesday 
