@@ -84,6 +84,22 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/noimporta.jpg)
 ![](images/madcarolers.jpg)
 ![](images/madlate.jpg)
-#### Monday 2
+#### Monday
+![](images/sophia.jpg)
+![](images/sophiacafe.jpg)
+![](images/orozco.jpg)
+![](images/grozliketrump.jpg)
+![](images/guernica.jpg)
+![](images/mad.jpg)
 #### Tuesday 
+![](images/caixa.jpg)
+![](images/lillielbe.jpg)
+![](images/dinosaurs.jpg)
+![](images/caixacafe.jpg)
+![](images/cafebyprado.jpg)
+![](images/waitingforflamenco.jpg)
+![](images/madflamenco.jpg)
+
 #### Wednesday 
+![](images/iberiacrew.jpg)
+![](images/lhrout.jpg)
