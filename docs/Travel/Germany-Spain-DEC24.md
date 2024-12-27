@@ -1,4 +1,4 @@
-# Winter Vacation - Germany / Spain
+
 This is all Shirley's fault.
 #### Thursday
 ![pdx](images/pdx12dec24.png.png)
@@ -105,3 +105,6 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 #### Wednesday 
 ![](images/iberiacrew.jpg)
 ![](images/lhrout.jpg)
+![](images/canada1.jpg)
+![](images/canada2.jpg)
+![](images/pdx.jpg)
