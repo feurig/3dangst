@@ -114,7 +114,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/orozco.jpg)
 ![](images/grozliketrump.jpg)
 ![](images/guernica.jpg)
-![](images/mad.jpg)
+
 
 #### Tuesday 
 
@@ -125,6 +125,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/cafebyprado.jpg)
 ![](images/waitingforflamenco.jpg)
 ![](images/madflamenco.jpg)
+![](images/mad.jpg)
 
 #### Wednesday 
 
