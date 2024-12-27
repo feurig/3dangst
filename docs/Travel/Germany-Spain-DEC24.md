@@ -1,26 +1,36 @@
 
 This is all Shirley's fault. She had been listening to how much I enjoyd the christmas seasons I had spent in Germany and wanted to reclaim some of her first experiences in Spain. So we talked about a general plan and she arranged most of the particulars.
+
 #### Thursday
+
 ![pdx](images/pdx12dec24.png.png)
 ![pwr](images/power.jpg)
 ![sea1](images/sea12dec24-a.jpg)
 ![sea2](images/sea12dec24-b.jpg)
 ![lhr](images/LHR13DEC24.jpg)
+
 #### Friday 
+
 ![redsea](images/redsea.jpg)
+
 #### Saturday.
+
 ![alexanderplatz](images/alexanderplat.jpg)
 ![](images/alexanderplatz.jpg.jpeg)
 ![lost](images/lost.jpg)
+
 #### Sunday
+
 ![](images/kudamn.jpeg)
 ![](images/tiergarten1.jpg)
 ![](images/tiergarten2.jpg)
 ![](images/victorycollumn.jpg)
 ![](images/shirleyasarussian.jpg)
 ![](images/watchingus.jpg)
+
 #### Monday
-Went do a doctor who diagnosed me with Deep Vein Thrombosis, Am supposed to be on blood thinners for a month or so.
+
+Went to a doctor who diagnosed me with Deep Vein Thrombosis, Am supposed to be on blood thinners for a month or so.
 The whole thing cost less than 200Euros with no insurance. 
 In the states that would have been my out of pocket after insurance.
 Our last day was spent checking out Tram68. It was dark.
@@ -32,7 +42,9 @@ Wound up at a much better bar.
 ![](images/club49.jpg)
 ![](images/wowok.jpg)
 ![](images/happy.jpg)
+
 #### Tuesday
+
 Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just about enough time 
 
 ![](images/koelnerdom.jpg)
@@ -48,6 +60,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/badenbadenfood.jpg)
 
 #### Thursday
+
 ![](images/badenbadenwindow.jpg)
 ![](images/kalrsruhehbf.jpg)
 ![](images/karlsruhenachstutti.jpg)
@@ -57,6 +70,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/noknees.jpg)
 
 #### Friday
+
 ![](images/roomwithaview.jpg)
 ![](images/hotelcerevantes.jpg)
 ![](images/themushroomfromours.jpg)
@@ -67,6 +81,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/nightcap.jpg)
 
 #### Saturday 21DEC24
+
 ![](images/smallchapel.jpg)
 ![](images/lunchtapas.jpg)
 ![](images/outsidethecathedral.jpg)
@@ -83,6 +98,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/lastmeal.jpg)
 
 #### Sunday 22DEC24
+
 ![](images/spanishcountryside.jpg)
 ![](images/madarrival.jpg)
 ![](images/madfirstmeal.jpg)
@@ -92,6 +108,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/madlate.jpg)
 
 #### Monday
+
 ![](images/sophia.jpg)
 ![](images/sophiacafe.jpg)
 ![](images/orozco.jpg)
@@ -100,6 +117,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/mad.jpg)
 
 #### Tuesday 
+
 ![](images/caixa.jpg)
 ![](images/lillielbe.jpg)
 ![](images/dinosaurs.jpg)
@@ -109,6 +127,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just ab
 ![](images/madflamenco.jpg)
 
 #### Wednesday 
+
 ![](images/iberiacrew.jpg)
 ![](images/lhrout.jpg)
 ![](images/canada1.jpg)
