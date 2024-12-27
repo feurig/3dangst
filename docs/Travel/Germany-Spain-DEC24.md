@@ -1,5 +1,5 @@
 
-This is all Shirley's fault.
+This is all Shirley's fault. She had been listening to how much I enjoyd the christmas seasons I had spent in Germany and wanted to reclaim some of her first experiences in Spain. So we talked about a general plan and she arranged most of the particulars.
 #### Thursday
 ![pdx](images/pdx12dec24.png.png)
 ![pwr](images/power.jpg)
