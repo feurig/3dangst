@@ -45,7 +45,7 @@ Wound up at a much better bar.
 
 #### Tuesday
 
-Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just about enough time 
+Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just about enough time in Köln to eat a decent meal and check out the "dom" and christmas market.
 
 ![](images/koelnerdom.jpg)
 ![](images/shirleyamdom.jpg)
