@@ -7,5 +7,5 @@
     mv ../site ../osite
     mv site ..
     echo "======================= End Build `date`===================="
-} &>1 | tee logs/makesite.out
+} 2&>1 | tee logs/makesite.out
 
