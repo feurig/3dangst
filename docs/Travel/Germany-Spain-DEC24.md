@@ -33,18 +33,20 @@ Wound up at a much better bar.
 ![](images/wowok.jpg)
 ![](images/happy.jpg)
 #### Tuesday
-Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
+Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban. Had just about enough time 
 
 ![](images/koelnerdom.jpg)
 ![](images/shirleyamdom.jpg)
 ![](images/domart.jpg)
 ![](images/thedom.jpeg)
+
 #### Wednesday
 
 ![](images/safeonthetrain.jpg)
 ![](images/friedrichbad.jpg)
 ![](images/badenbadenweinachtsmarkt.jpg)
 ![](images/badenbadenfood.jpg)
+
 #### Thursday
 ![](images/badenbadenwindow.jpg)
 ![](images/kalrsruhehbf.jpg)
@@ -63,6 +65,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/tapas1.jpg)
 ![](images/tapas2.jpg)
 ![](images/nightcap.jpg)
+
 #### Saturday 21DEC24
 ![](images/smallchapel.jpg)
 ![](images/lunchtapas.jpg)
@@ -78,6 +81,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/carriageride2.jpg)
 ![](images/carriageride3.jpg)
 ![](images/lastmeal.jpg)
+
 #### Sunday 22DEC24
 ![](images/spanishcountryside.jpg)
 ![](images/madarrival.jpg)
@@ -86,6 +90,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/noimporta.jpg)
 ![](images/madcarolers.jpg)
 ![](images/madlate.jpg)
+
 #### Monday
 ![](images/sophia.jpg)
 ![](images/sophiacafe.jpg)
@@ -93,6 +98,7 @@ Took a cab to Spandau HBF and saved ourselves an hour on the U/Sban.
 ![](images/grozliketrump.jpg)
 ![](images/guernica.jpg)
 ![](images/mad.jpg)
+
 #### Tuesday 
 ![](images/caixa.jpg)
 ![](images/lillielbe.jpg)
