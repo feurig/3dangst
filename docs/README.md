@@ -5,3 +5,4 @@ I am also using a disposable linux system as my daily driver for this so I am lo
 
 ## Sample section -- Travel 
 ### [Germany/Spain December 2024](/Travel/Germany-Spain-DEC24/)
+### [Road trip ... Olympia, Tacoma, Seattle and then back home 01-03AUG25](/Travel/RoadTrip01-03AUG25/)
