@@ -1,5 +1,7 @@
 # Road trip! Olympia, Tacoma, Seattle and then back home 01-03AUG25
 
+YOU ARE HERE FLESHING THIS IN....
+
 ![](images/RoadTrip01-03AUG25/IMG_8072.jpeg)
 ![](images/RoadTrip01-03AUG25/IMG_8073.jpeg)
 ![](images/RoadTrip01-03AUG25/IMG_8079.jpeg)
