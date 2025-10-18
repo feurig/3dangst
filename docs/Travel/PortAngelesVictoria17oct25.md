@@ -1,0 +1,12 @@
+# Weekend Trip North 17-20 October 25
+![IMG_9004.jpeg](images/PortAngelesVictoria17oct25/IMG_9004.jpeg)
+![IMG_9010.jpeg](images/PortAngelesVictoria17oct25/IMG_9010.jpeg)
+![IMG_9019.jpeg](images/PortAngelesVictoria17oct25/IMG_9019.jpeg)
+![IMG_9020.jpeg](images/PortAngelesVictoria17oct25/IMG_9020.jpeg)
+![IMG_9028.jpeg](images/PortAngelesVictoria17oct25/IMG_9028.jpeg)
+![IMG_9043.jpeg](images/PortAngelesVictoria17oct25/IMG_9043.jpeg)
+![IMG_9044.jpeg](images/PortAngelesVictoria17oct25/IMG_9044.jpeg)
+![IMG_9046.jpeg](images/PortAngelesVictoria17oct25/IMG_9046.jpeg)
+![IMG_9049.jpeg](images/PortAngelesVictoria17oct25/IMG_9049.jpeg)
+![lassothepier.mov](images/PortAngelesVictoria17oct25/lassothepier.mov)
+![roughsea.mov](images/PortAngelesVictoria17oct25/roughsea.mov)
