@@ -10,3 +10,4 @@
 ![IMG_9049.jpeg](images/PortAngelesVictoria17oct25/IMG_9049.jpeg)
 ![lassothepier.mov](images/PortAngelesVictoria17oct25/lassothepier.mov)
 ![roughsea.mov](images/PortAngelesVictoria17oct25/roughsea.mov)
+![new pens](images/PortAngelesVictoria17oct25/newpens.jpg)
