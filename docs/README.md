@@ -14,3 +14,5 @@ I used a disposable linux system as my daily driver for this trip  I am looking 
 ### [Road trip ... Olympia, Tacoma, Seattle and then back home 01-03AUG25](/Travel/RoadTrip01-03AUG25/)
 
 ### [Port Angeles / Victoria 17-19OCT25](/Travel/PortAngelesVictoria17oct25/)
+
+### [Astoria 14-17 November 2025](/Travel/Astoria14-17NOV25/)
