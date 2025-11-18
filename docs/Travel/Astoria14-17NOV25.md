@@ -19,3 +19,4 @@
 ![IMG_9493.jpeg](images/Astoria14-17NOV25/IMG_9493.jpeg)
 ![IMG_9494.jpeg](images/Astoria14-17NOV25/IMG_9494.jpeg)
 ![IMG_9495.jpeg](images/Astoria14-17NOV25/IMG_9495.jpeg)
+![IMG_9496.jpg](images/Astoria14-17NOV25/IMG_9496.jpg)
