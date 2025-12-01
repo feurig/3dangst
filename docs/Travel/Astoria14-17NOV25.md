@@ -1,6 +1,8 @@
-#Astoria 14-17 November 2025
+# Astoria 14-17 November 2025
 
+The food looked really nice...
 ![IMG_9472.jpg](images/Astoria14-17NOV25/IMG_9472.jpg)
+
 ![IMG_9473.jpg](images/Astoria14-17NOV25/IMG_9473.jpg)
 ![IMG_9474.jpg](images/Astoria14-17NOV25/IMG_9474.jpg)
 ![IMG_9475.jpg](images/Astoria14-17NOV25/IMG_9475.jpg)
