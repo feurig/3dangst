@@ -18,3 +18,5 @@ I used a disposable linux system as my daily driver for this trip  I am looking 
 ### [Astoria 14-17 November 2025](/Travel/Astoria14-17NOV25/)
 
 ### [Rainy Weekend in Manzinita. 05-08 December 25](/Travel/Manzinita-05-08DEC25/)
+
+### [Train trip to Seattle 23-26 January 26]

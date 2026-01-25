@@ -1,10 +1,14 @@
-[IMG_0387.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0387.jpeg)
-[IMG_0388.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0388.jpeg)
-[IMG_0389.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0389.jpeg)
-[IMG_0391.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0391.jpeg)
-[IMG_0394.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0394.jpeg)
-[IMG_0395.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0395.jpeg)
-[IMG_0396.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0396.jpeg)
-[IMG_0397.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0397.jpeg)
-[IMG_0398.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0398.jpeg)
-[IMG_0399.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0399.jpeg)
+#Taking the train to Seattle. 
+
+We had no idea there was a big game. Good thing.
+
+![IMG_0387.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0387.jpeg)
+![IMG_0388.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0388.jpeg)
+![IMG_0389.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0389.jpeg)
+![IMG_0391.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0391.jpeg)
+![IMG_0394.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0394.jpeg)
+![IMG_0395.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0395.jpeg)
+![IMG_0396.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0396.jpeg)
+![IMG_0397.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0397.jpeg)
+![IMG_0398.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0398.jpeg)
+![IMG_0399.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0399.jpeg)
