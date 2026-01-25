@@ -1,6 +1,6 @@
-#Taking the train to Seattle. 
+# Taking the train to Seattle (23-26JAN26)
 
-We had no idea there was a big game. Good thing.
+Needed to go because we were out of Pike Street Tea. Had no idea there was a big game. 
 
 ![IMG_0387.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0387.jpeg)
 ![IMG_0388.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0388.jpeg)
