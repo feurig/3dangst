@@ -12,4 +12,4 @@ Needed to go because we were out of Pike Street Tea. Had no idea there was a big
 ![IMG_0397.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0397.jpeg)
 ![IMG_0398.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0398.jpeg)
 ![IMG_0399.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0399.jpeg)
-[IMG_0403.jpg](images/TrainToSeattle-23-26JAN26/IMG_0403.jpg)
+![IMG_0403.jpg](images/TrainToSeattle-23-26JAN26/IMG_0403.jpg)
