@@ -1,6 +1,6 @@
 # Taking the train to Seattle (23-26JAN26)
 
-Needed to go because we were out of Pike Street Tea. Had no idea there was a big game. 
+Needed to go because we were out of Pike Street Tea. Had no idea there was a big game.
 
 ![IMG_0387.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0387.jpeg)
 ![IMG_0388.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0388.jpeg)
@@ -11,13 +11,17 @@ Needed to go because we were out of Pike Street Tea. Had no idea there was a big
 ![IMG_0396.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0396.jpeg)
 ![IMG_0397.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0397.jpeg)
 ![IMG_0398.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0398.jpeg)
-Saturday's Catch.
+
+## Saturday's Catch.
 ![IMG_0399.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0399.jpeg)
-Look who we found!!
+
+## Look who we found!!
 ![IMG_0403.jpg](images/TrainToSeattle-23-26JAN26/IMG_0403.jpg)
-Breakfast at baba yagas.
+
+## Breakfast at baba yagas.
 ![IMG_0407.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0407.jpeg)
-Japan town.
+
+## Japan town.
 ![IMG_0408.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0408.jpeg)
 ![IMG_0409.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0409.jpeg)
 ![IMG_0410.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0410.jpeg)
@@ -29,5 +33,6 @@ Japan town.
 ![IMG_0421.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0421.jpeg)
 ![IMG_0422.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0422.jpeg)
 ![IMG_0423.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0423.jpeg)
-Sunday's Take Home. 
+
+## Sunday's Take Home. 
 ![IMG_0424.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0424.jpeg)
