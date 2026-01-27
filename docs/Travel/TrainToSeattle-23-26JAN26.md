@@ -29,6 +29,10 @@ Needed to go because we were out of Pike Street Tea. Had no idea there was a big
 ![IMG_0413.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0413.jpeg)
 ![IMG_0414.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0414.jpeg)
 ![IMG_0415.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0415.jpeg)
+
+## The 12th man was loud enought to hear from blocks away.
+![IMG_0167.mov](images/TrainToSeattle-23-26JAN26/IMG_0167.mov)
+
 ![IMG_0420.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0420.jpeg)
 ![IMG_0421.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0421.jpeg)
 ![IMG_0422.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0422.jpeg)
@@ -36,6 +40,8 @@ Needed to go because we were out of Pike Street Tea. Had no idea there was a big
 
 ## Sunday's Take Home. 
 ![IMG_0424.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0424.jpeg)
+
+## Monday and home
 ![IMG_0425.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0425.jpeg)
 ![IMG_0427.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0427.jpeg)
 ![IMG_0430.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0430.jpeg)
