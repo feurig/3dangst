@@ -36,3 +36,10 @@ Needed to go because we were out of Pike Street Tea. Had no idea there was a big
 
 ## Sunday's Take Home. 
 ![IMG_0424.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0424.jpeg)
+![IMG_0425.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0425.jpeg)
+![IMG_0427.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0427.jpeg)
+![IMG_0430.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0430.jpeg)
+![IMG_0432.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0432.jpeg)
+![IMG_0433.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0433.jpeg)
+![IMG_0434.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0434.jpeg)
+![IMG_0435.jpeg](images/TrainToSeattle-23-26JAN26/IMG_0435.jpeg)
