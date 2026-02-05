@@ -38,8 +38,6 @@ Screaming into the ditch spinning out of control.
 
 ## not that bad
 
-Not that bad.
-
 You were right. And I'm Sorry.
 I know hind sight is purfect but that wasn't bad.
 Things we come to regret most in life take a moment.
@@ -51,21 +49,22 @@ When I told you that I couldn't sleep with you
 You just laughed at me then you paid for the cab.
 
 Then your shower curtain collaped all around me.
-Found myself in a laughing pile in your tiny bed.
+I Found myself in a laughing pile in your tiny bed.
 You were sweet, we were safe, and you found me.
-I know hindsight is perfect but that wasn't bad
+I know hindsight is perfect. but that wasn't bad
 
-There it was. My last night in boston.
+There it was. My last night in Boston.
 And I'd committed myself to a long distant failure.
-Case and point I couldn't even get out of town
+Case and point. I couldn't even get out of town
 What a fool. I'd already blown it.
 
-When I woke in that strange little bed out in south-e 
-With a hangover as deep as my guilt and south loathing
+When I woke in that strange little bed out in south-e
+With a hangover as big as my guilt and south loathing
 When you looked in my eyes you saw deep disappointment
-Kind of broke my heart when you said hey was it that bad?
+Kind of broke my heart when you said "hey, was it that bad?"
 
 [bridge]
+
 Things we come to regret most in life take a moment
 And once that moment is gone well we cant take it back.
 So it seems that the best we can do is to own it.
@@ -81,20 +80,21 @@ Wish I'd never left the bed.
 Got my suit and tie on. 
 Then I hear that sound again.
 And you know 20 minutes later.
-Well I'm still fooling around. 
-
+Well I'm still fooling around.
 When I head out the door.
-I take a final look around. 
+I take a final look around.
+
 [chorus]
 And woudln't you know in the other room
-Callin soft and low. 
+Callin soft and low.
 And I tell myself
-Just a little more. 
+Just a little more.
 I feel her pulling me
-Like an undertow. 
+Like an undertow.
 That irresistible buzz.
 
-I'm later still. Well I should just go back to bed.
+I'm later still. 
+Well I should just go back to bed.
 Cause my work closthes are drenched
 And that buzzing fills my head.
 So I call up the girls.
@@ -114,13 +114,13 @@ That irresistible buzz.
 That irresistable buzz.
 
 [chorus]
-And woudln't you know in the other room
-Callin soft and low. 
+And you know in the other room
+Callin soft and low
 And I tell myself
-Just a little more. 
+Just a little more
 Another morning lost
-In the afterglow 
-Of hat irresistible buzz.
+In the afterglow
+Of that irresistible buzz.
 
 ## Rumble/Dreck
 Rumble/Dreck:
@@ -148,8 +148,10 @@ And the stench is never gonna end
 Defiling the border
 Between Justice and Order.
 
-When whites need food but blacks are looters
-And target practice for uniformed sharpshooters
-And it just keep coming back again 
-from the state our family and friends
-Won't someone please just take out the trash.
+Whites need food but blacks are looters
+Target practice for uniformed sharpshooters
+And it just keep coming back again
+from the state, our family, and friends
+breaks my heart to see it happening here
+militancy, bigotry, and fear
+Won't someone please just take out the trash
