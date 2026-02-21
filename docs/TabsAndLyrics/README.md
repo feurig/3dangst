@@ -155,3 +155,32 @@ from the state, our family, and friends
 breaks my heart to see it happening here
 militancy, bigotry, and fear
 Won't someone please just take out the trash
+
+## the iSong.
+
+I got my ipods in my ear so that you know that I won't hear you
+My eyewear avoids your stare, I dress to show you I don't care.
+I'm iNsolated iSolated and iAttitude away from you
+iProducts shot that I'm too cool and SO MUCH MORE NOT HERE THAN YOU!
+
+[chorus]
+I'm more not here than you are.
+*neah neah*
+I'm more not here than you are.
+*neah neah*
+I'm more not here than you are.
+*neah neah*
+I'm more not here than you are!
+
+With my bluetooth in my ear I talk to someone who's not here
+I text through dinner with the wife who doesn't notice I'm alive
+Cause she's sedated iNundated with the hash tag #ILOSTINTRESTWHEN
+I post my missed connections add I'm so much more not here than you!
+
+[chorus]
+
+BRIDGE/MELTDOWN
+
+[chorus]
+
+*NEAH NEAH
