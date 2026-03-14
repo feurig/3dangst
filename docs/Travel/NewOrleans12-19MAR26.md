@@ -1,8 +1,10 @@
 # Going to new orleans to see the mardi gras indians
+
+Waiting for the plane.
 ![IMG_0180.jpeg](images/NewOrleans12-19MAR26/IMG_0180.jpeg)
+And 4 hours later.
 ![IMG_0181.jpeg](images/NewOrleans12-19MAR26/IMG_0181.jpeg)
 ![IMG_0195.jpg](images/NewOrleans12-19MAR26/IMG_0195.jpg)
-![IMG_0196.jpg](images/NewOrleans12-19MAR26/IMG_0196.jpg)
 ![IMG_0197.jpg](images/NewOrleans12-19MAR26/IMG_0197.jpg)
 ![IMG_0198.jpg](images/NewOrleans12-19MAR26/IMG_0198.jpg)
 ![IMG_0200.jpg](images/NewOrleans12-19MAR26/IMG_0200.jpg)
@@ -24,7 +26,11 @@
 ![IMG_0912.jpeg](images/NewOrleans12-19MAR26/IMG_0912.jpeg)
 ![IMG_0915.jpeg](images/NewOrleans12-19MAR26/IMG_0915.jpeg)
 ![IMG_0921.jpeg](images/NewOrleans12-19MAR26/IMG_0921.jpeg)
+![IMG_0199.jpg](images/NewOrleans12-19MAR26/IMG_0199.jpg)
 ![IMG_0922.jpeg](images/NewOrleans12-19MAR26/IMG_0922.jpeg)
 ![IMG_0925.jpeg](images/NewOrleans12-19MAR26/IMG_0925.jpeg)
 ![IMG_0927.jpeg](images/NewOrleans12-19MAR26/IMG_0927.jpeg)
 ![IMG_0928.jpeg](images/NewOrleans12-19MAR26/IMG_0928.jpeg)
+![2588991983431210833.jpg](images/NewOrleans12-19MAR26/2588991983431210833.jpg)
+![IMG_0930.jpeg](images/NewOrleans12-19MAR26/IMG_0930.jpeg)
+![IMG_0932.jpeg](images/NewOrleans12-19MAR26/IMG_0932.jpeg)
