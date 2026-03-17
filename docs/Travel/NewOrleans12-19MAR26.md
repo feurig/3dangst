@@ -240,10 +240,10 @@ Stopping at a couple of dive bars along the way.
 
 #### Then to the french quarter for some food some other stuff and then some music
 
+![IMG_1154.jpeg](images/NewOrleans12-19MAR26/IMG_1154.jpeg)
 ![IMG_1152.jpeg](images/NewOrleans12-19MAR26/IMG_1152.jpeg)
 ![IMG_0241.jpg](images/NewOrleans12-19MAR26/IMG_0241.jpg)
 ![IMG_0244.jpg](images/NewOrleans12-19MAR26/IMG_0244.jpg)
-![IMG_1154.jpeg](images/NewOrleans12-19MAR26/IMG_1154.jpeg)
 ![IMG_1155.jpeg](images/NewOrleans12-19MAR26/IMG_1155.jpeg)
 ![IMG_1162.jpeg](images/NewOrleans12-19MAR26/IMG_1162.jpeg)
 ![IMG_1167.jpeg](images/NewOrleans12-19MAR26/IMG_1167.jpeg)
@@ -316,7 +316,6 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1366.jpeg](images/NewOrleans12-19MAR26/IMG_1366.jpeg)
 ![IMG_1368.jpeg](images/NewOrleans12-19MAR26/IMG_1368.jpeg)
 ![IMG_1369.jpeg](images/NewOrleans12-19MAR26/IMG_1369.jpeg)
-![IMG_1370.jpeg](images/NewOrleans12-19MAR26/IMG_1370.jpeg)
 ![IMG_1371.jpeg](images/NewOrleans12-19MAR26/IMG_1371.jpeg)
 ![IMG_1372.jpeg](images/NewOrleans12-19MAR26/IMG_1372.jpeg)
 ![IMG_1373.jpeg](images/NewOrleans12-19MAR26/IMG_1373.jpeg)
