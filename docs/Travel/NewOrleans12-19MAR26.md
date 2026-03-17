@@ -320,3 +320,39 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1372.jpeg](images/NewOrleans12-19MAR26/IMG_1372.jpeg)
 ![IMG_1373.jpeg](images/NewOrleans12-19MAR26/IMG_1373.jpeg)
 ![IMG_1376.jpeg](images/NewOrleans12-19MAR26/IMG_1376.jpeg)
+### Tuesday 
+
+#### Swamp Tour
+
+![IMG_1377.jpeg](images/NewOrleans12-19MAR26/IMG_1377.jpeg)
+![IMG_1378.jpeg](images/NewOrleans12-19MAR26/IMG_1378.jpeg)
+![IMG_1381.jpeg](images/NewOrleans12-19MAR26/IMG_1381.jpeg)
+![IMG_1391.jpeg](images/NewOrleans12-19MAR26/IMG_1391.jpeg)
+![IMG_1392.jpeg](images/NewOrleans12-19MAR26/IMG_1392.jpeg)
+![IMG_1393.jpeg](images/NewOrleans12-19MAR26/IMG_1393.jpeg)
+![IMG_1395.jpeg](images/NewOrleans12-19MAR26/IMG_1395.jpeg)
+![IMG_1397.jpeg](images/NewOrleans12-19MAR26/IMG_1397.jpeg)
+![IMG_1398.jpeg](images/NewOrleans12-19MAR26/IMG_1398.jpeg)
+![IMG_1399.jpeg](images/NewOrleans12-19MAR26/IMG_1399.jpeg)
+![IMG_1401.jpeg](images/NewOrleans12-19MAR26/IMG_1401.jpeg)
+![IMG_1406.jpeg](images/NewOrleans12-19MAR26/IMG_1406.jpeg)
+![IMG_1407.jpeg](images/NewOrleans12-19MAR26/IMG_1407.jpeg)
+![IMG_1410.jpeg](images/NewOrleans12-19MAR26/IMG_1410.jpeg)
+![IMG_1411.jpeg](images/NewOrleans12-19MAR26/IMG_1411.jpeg)
+![IMG_1412.jpeg](images/NewOrleans12-19MAR26/IMG_1412.jpeg)
+![IMG_1413.jpeg](images/NewOrleans12-19MAR26/IMG_1413.jpeg)
+![IMG_1419.jpeg](images/NewOrleans12-19MAR26/IMG_1419.jpeg)
+
+#### Lunch at Dookie Chase's
+
+![IMG_1422.jpeg](images/NewOrleans12-19MAR26/IMG_1422.jpeg)
+![IMG_1425.jpeg](images/NewOrleans12-19MAR26/IMG_1425.jpeg)
+![IMG_1423.jpeg](images/NewOrleans12-19MAR26/IMG_1423.jpeg)
+![IMG_1426.jpeg](images/NewOrleans12-19MAR26/IMG_1426.jpeg)
+![IMG_1427.jpeg](images/NewOrleans12-19MAR26/IMG_1427.jpeg)
+![IMG_1428.jpeg](images/NewOrleans12-19MAR26/IMG_1428.jpeg)
+![IMG_1429.jpeg](images/NewOrleans12-19MAR26/IMG_1429.jpeg)
+![IMG_1430.jpeg](images/NewOrleans12-19MAR26/IMG_1430.jpeg)
+![IMG_1431.jpeg](images/NewOrleans12-19MAR26/IMG_1431.jpeg)
+![IMG_1432.jpeg](images/NewOrleans12-19MAR26/IMG_1432.jpeg)
+![IMG_1433.jpeg](images/NewOrleans12-19MAR26/IMG_1433.jpeg)
