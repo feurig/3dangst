@@ -388,3 +388,8 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1470.jpeg](images/NewOrleans12-19MAR26/IMG_1470.jpeg)
 ![IMG_1474.jpeg](images/NewOrleans12-19MAR26/IMG_1474.jpeg)
 
+### Wednesday
+
+#### The booty so far
+
+![IMG_1477.jpeg](images/NewOrleans12-19MAR26/IMG_1477.jpeg)
