@@ -114,8 +114,6 @@ Stopping at a couple of dive bars along the way.
 ![IMG_0211.jpg](images/NewOrleans12-19MAR26/IMG_0211.jpg)
 ![IMG_0217.jpg](images/NewOrleans12-19MAR26/IMG_0217.jpg)
 ![IMG_0220.jpg](images/NewOrleans12-19MAR26/IMG_0220.jpg)
-![IMG_0222.jpg](images/NewOrleans12-19MAR26/IMG_0222.jpg)
-![IMG_1009.jpeg](images/NewOrleans12-19MAR26/IMG_1009.jpeg)
 ![IMG_1010.jpeg](images/NewOrleans12-19MAR26/IMG_1010.jpeg)
 ![IMG_1011.jpeg](images/NewOrleans12-19MAR26/IMG_1011.jpeg)
 ![IMG_1012.jpeg](images/NewOrleans12-19MAR26/IMG_1012.jpeg)
@@ -136,6 +134,8 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1032.jpeg](images/NewOrleans12-19MAR26/IMG_1032.jpeg)
 ![IMG_1033.jpeg](images/NewOrleans12-19MAR26/IMG_1033.jpeg)
 ![IMG_1034.jpeg](images/NewOrleans12-19MAR26/IMG_1034.jpeg)
+![IMG_0222.jpg](images/NewOrleans12-19MAR26/IMG_0222.jpg)
+
 
 ### Sunday
 
@@ -356,3 +356,35 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1431.jpeg](images/NewOrleans12-19MAR26/IMG_1431.jpeg)
 ![IMG_1432.jpeg](images/NewOrleans12-19MAR26/IMG_1432.jpeg)
 ![IMG_1433.jpeg](images/NewOrleans12-19MAR26/IMG_1433.jpeg)
+
+#### Todays proof of life photo from our pet sitter
+
+![IMG_7944.jpg](images/NewOrleans12-19MAR26/IMG_7944.jpg)
+
+#### Art Market, Just enough Irish parade, Dinner at Budsi's
+
+![IMG_1434.jpeg](images/NewOrleans12-19MAR26/IMG_1434.jpeg)
+![IMG_1435.jpeg](images/NewOrleans12-19MAR26/IMG_1435.jpeg)
+![IMG_1436.jpeg](images/NewOrleans12-19MAR26/IMG_1436.jpeg)
+![IMG_1438.jpeg](images/NewOrleans12-19MAR26/IMG_1438.jpeg)
+![IMG_1440.jpeg](images/NewOrleans12-19MAR26/IMG_1440.jpeg)
+![IMG_1441.jpeg](images/NewOrleans12-19MAR26/IMG_1441.jpeg)
+![IMG_1442.jpeg](images/NewOrleans12-19MAR26/IMG_1442.jpeg)
+![IMG_1443.jpeg](images/NewOrleans12-19MAR26/IMG_1443.jpeg)
+![IMG_1445.jpeg](images/NewOrleans12-19MAR26/IMG_1445.jpeg)
+![IMG_1446.jpeg](images/NewOrleans12-19MAR26/IMG_1446.jpeg)
+![IMG_1447.jpeg](images/NewOrleans12-19MAR26/IMG_1447.jpeg)
+![IMG_1448.mov](images/NewOrleans12-19MAR26/IMG_1448.mov)
+![IMG_1452.jpeg](images/NewOrleans12-19MAR26/IMG_1452.jpeg)
+![IMG_1456.mov](images/NewOrleans12-19MAR26/IMG_1456.mov)
+![IMG_1457.MOV](images/NewOrleans12-19MAR26/IMG_1457.MOV)
+![IMG_1459.mov](images/NewOrleans12-19MAR26/IMG_1459.mov)
+![IMG_1461.jpeg](images/NewOrleans12-19MAR26/IMG_1461.jpeg)
+![IMG_1462.jpeg](images/NewOrleans12-19MAR26/IMG_1462.jpeg)
+![IMG_1463.jpeg](images/NewOrleans12-19MAR26/IMG_1463.jpeg)
+![IMG_1465.jpeg](images/NewOrleans12-19MAR26/IMG_1465.jpeg)
+![IMG_1467.jpeg](images/NewOrleans12-19MAR26/IMG_1467.jpeg)
+![IMG_1469.jpeg](images/NewOrleans12-19MAR26/IMG_1469.jpeg)
+![IMG_1470.jpeg](images/NewOrleans12-19MAR26/IMG_1470.jpeg)
+![IMG_1474.jpeg](images/NewOrleans12-19MAR26/IMG_1474.jpeg)
+
