@@ -522,3 +522,22 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1614.jpeg](images/NewOrleans12-19MAR26/IMG_1614.jpeg)
 ![IMG_1616.jpeg](images/NewOrleans12-19MAR26/IMG_1616.jpeg)
 ![IMG_1617.jpeg](images/NewOrleans12-19MAR26/IMG_1617.jpeg)
+
+### Thursday.
+
+#### Heading home
+
+![IMG_1618.jpeg](images/NewOrleans12-19MAR26/IMG_1618.jpeg)
+![IMG_1619.jpeg](images/NewOrleans12-19MAR26/IMG_1619.jpeg)
+![IMG_1621.jpeg](images/NewOrleans12-19MAR26/IMG_1621.jpeg)
+![IMG_1622.jpeg](images/NewOrleans12-19MAR26/IMG_1622.jpeg)
+![IMG_1623.jpeg](images/NewOrleans12-19MAR26/IMG_1623.jpeg)
+![IMG_1625.jpeg](images/NewOrleans12-19MAR26/IMG_1625.jpeg)
+![IMG_1626.jpeg](images/NewOrleans12-19MAR26/IMG_1626.jpeg)
+![IMG_1627.jpeg](images/NewOrleans12-19MAR26/IMG_1627.jpeg)
+![IMG_1628.jpeg](images/NewOrleans12-19MAR26/IMG_1628.jpeg)
+![IMG_1629.jpeg](images/NewOrleans12-19MAR26/IMG_1629.jpeg)
+![IMG_1630.mov](images/NewOrleans12-19MAR26/IMG_1630.mov)
+![IMG_1631.jpeg](images/NewOrleans12-19MAR26/IMG_1631.jpeg)
+![IMG_1632.jpeg](images/NewOrleans12-19MAR26/IMG_1632.jpeg)
+![IMG_1633.jpeg](images/NewOrleans12-19MAR26/IMG_1633.jpeg)
