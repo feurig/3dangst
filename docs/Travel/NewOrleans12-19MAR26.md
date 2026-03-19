@@ -464,3 +464,28 @@ Stopping at a couple of dive bars along the way.
 #### Merge these in above.
 ![IMG_0243.jpg](images/NewOrleans12-19MAR26/IMG_0243.jpg)
 ![IMG_0263.jpg](images/NewOrleans12-19MAR26/IMG_0263.jpg)
+
+#### The last very expensive supper at n7
+
+
+![IMG_1562.jpeg](images/NewOrleans12-19MAR26/IMG_1562.jpeg)
+![IMG_1563.jpeg](images/NewOrleans12-19MAR26/IMG_1563.jpeg)
+![IMG_1564.jpeg](images/NewOrleans12-19MAR26/IMG_1564.jpeg)
+![IMG_1565.jpeg](images/NewOrleans12-19MAR26/IMG_1565.jpeg)
+![IMG_1566.jpeg](images/NewOrleans12-19MAR26/IMG_1566.jpeg)
+![IMG_1568.jpeg](images/NewOrleans12-19MAR26/IMG_1568.jpeg)
+![IMG_1569.jpeg](images/NewOrleans12-19MAR26/IMG_1569.jpeg)
+![IMG_1570.jpeg](images/NewOrleans12-19MAR26/IMG_1570.jpeg)
+![IMG_1571.jpeg](images/NewOrleans12-19MAR26/IMG_1571.jpeg)
+![IMG_1572.jpeg](images/NewOrleans12-19MAR26/IMG_1572.jpeg)
+![IMG_1573.jpeg](images/NewOrleans12-19MAR26/IMG_1573.jpeg)
+![IMG_1574.jpeg](images/NewOrleans12-19MAR26/IMG_1574.jpeg)
+![IMG_1575.jpeg](images/NewOrleans12-19MAR26/IMG_1575.jpeg)
+![IMG_1576.jpeg](images/NewOrleans12-19MAR26/IMG_1576.jpeg)
+![IMG_1577.jpeg](images/NewOrleans12-19MAR26/IMG_1577.jpeg)
+![IMG_1578.jpeg](images/NewOrleans12-19MAR26/IMG_1578.jpeg)
+![IMG_1579.jpeg](images/NewOrleans12-19MAR26/IMG_1579.jpeg)
+![IMG_1580.jpeg](images/NewOrleans12-19MAR26/IMG_1580.jpeg)
+![IMG_1581.jpeg](images/NewOrleans12-19MAR26/IMG_1581.jpeg)
+![IMG_1582.jpeg](images/NewOrleans12-19MAR26/IMG_1582.jpeg)
+![IMG_1585.jpeg](images/NewOrleans12-19MAR26/IMG_1585.jpeg)
