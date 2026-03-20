@@ -20,3 +20,5 @@ I used a disposable linux system as my daily driver for this trip  I am looking 
 ### [Rainy Weekend in Manzinita. 05-08 December 25](/Travel/Manzinita-05-08DEC25/)
 
 ### [Train trip to Seattle 23-26 January 26](/Travel/TrainToSeattle-23-26JAN26/)
+
+### [Going to New Orleans for the Mardi Gras Indians](/Travel/Manzinita-05-08DEC25/)
