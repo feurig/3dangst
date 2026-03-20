@@ -539,7 +539,7 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1632.jpeg](images/NewOrleans12-19MAR26/IMG_1632.jpeg)
 ![IMG_1633.jpeg](images/NewOrleans12-19MAR26/IMG_1633.jpeg)
 
-#### The most frightening part of any flight (especially on post Condit Boing planes)
+#### The most frightening part of any flight (especially on post Condit Boeing planes)
 
 ![IMG_1640.mov](images/NewOrleans12-19MAR26/IMG_1640.mov)
 
