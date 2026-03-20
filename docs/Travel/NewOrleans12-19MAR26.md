@@ -520,7 +520,7 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1616.jpeg](images/NewOrleans12-19MAR26/IMG_1616.jpeg)
 ![IMG_1617.jpeg](images/NewOrleans12-19MAR26/IMG_1617.jpeg)
 
-### Thursday.
+### Thursday
 
 #### Heading home
 
@@ -538,3 +538,11 @@ Stopping at a couple of dive bars along the way.
 ![IMG_1631.jpeg](images/NewOrleans12-19MAR26/IMG_1631.jpeg)
 ![IMG_1632.jpeg](images/NewOrleans12-19MAR26/IMG_1632.jpeg)
 ![IMG_1633.jpeg](images/NewOrleans12-19MAR26/IMG_1633.jpeg)
+
+#### The most frightening part of any flight (especially on post Condit Boing planes)
+
+![IMG_1640.mov](images/NewOrleans12-19MAR26/IMG_1640.mov)
+
+#### And the obligatory PDX arrival photo
+
+![IMG_1662.jpeg](images/NewOrleans12-19MAR26/IMG_1662.jpeg)
