@@ -2,7 +2,6 @@
 
 This is the beginning of the extension of what I leared building out [digithink.com](https://www.digithink.som/) site into something more personal. The idea is to extend the [bartender](https://bartender.digithink.som/) to serve this sitd along with my other static websites (killing the ubuntu container in the process). It will use the same tools and mechanism as digithink.com (push content to a git server, use a webhook to pull the content to the web host and build it using mkdocs)
 
-
 ## Sample section -- Travel
 
 ### [Germany/Spain December 2024](/Travel/Germany-Spain-DEC24/)
