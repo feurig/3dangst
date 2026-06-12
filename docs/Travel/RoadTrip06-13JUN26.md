@@ -2,7 +2,7 @@
 For my birthday I decided to take the week off of work and ride the barroness to Eastern Washington and then up to Seattle. Three days of riding. Three days in Spokane. And three in Seattle.
 
 ## Saturday 06 June
-[<img src=images/RoadTrip06-13JUN26/SaturdayMap.png>](https://www.google.com/maps/d/embed?mid=12v2C_NUQLGyK_eps6tjZ8m3mNCdOMkQ&hl=en&ehbc=2E312F")
+[![Click to go to map](images/RoadTrip06-13JUN26/SaturdayMap.png)](https://www.google.com/maps/d/embed?mid=12v2C_NUQLGyK_eps6tjZ8m3mNCdOMkQ&hl=en&ehbc=2E312F")
 
 ![IMG_2125.jpeg](images/RoadTrip06-13JUN26/IMG_2125.jpeg)
 ![IMG_2127.jpeg](images/RoadTrip06-13JUN26/IMG_2127.jpeg)
@@ -52,7 +52,7 @@ The room in the Davenport.
 ![IMG_2206.jpeg](images/RoadTrip06-13JUN26/IMG_2206.jpeg)
 ![IMG_2210.jpeg](images/RoadTrip06-13JUN26/IMG_2210.jpeg)
 ## Wednesday -- back to St John
-[<image src=images/RoadTrip06-13JUN26/WednesdayMap.png>](https://www.google.com/maps/d/embed?mid=10RN3qfZ_ENd6Xc01lRWI0UnNZQIi2Ik&hl=en&ehbc=2E312F)
+[![Click to go to map](images/RoadTrip06-13JUN26/WednesdayMap.png)](https://www.google.com/maps/d/embed?mid=10RN3qfZ_ENd6Xc01lRWI0UnNZQIi2Ik&hl=en&ehbc=2E312F)
 ![IMG_2211.jpeg](images/RoadTrip06-13JUN26/IMG_2211.jpeg)
 ![IMG_2212.jpeg](images/RoadTrip06-13JUN26/IMG_2212.jpeg)
 ### Scott's in Idaho (I didn't go there)
@@ -85,7 +85,7 @@ The room in the Davenport.
 ![IMG_2294.jpeg](images/RoadTrip06-13JUN26/IMG_2294.jpeg)
 ![IMG_2295.jpeg](images/RoadTrip06-13JUN26/IMG_2295.jpeg)
 ## Thursday Cashmere to Seattle
-[<image src=images/RoadTrip06-13JUN26/ThursdayMap.png>](https://www.google.com/maps/d/edit?mid=1Fdx1S4iZu7qTR666c1wrnPHWCtCONeI&usp=sharing)
+[![Click to go to map](images/RoadTrip06-13JUN26/ThursdayMap.png)](https://www.google.com/maps/d/edit?mid=1Fdx1S4iZu7qTR666c1wrnPHWCtCONeI&usp=sharing)
 ### This was $30 more than sleeping on the ground at a national park
 ![IMG_2301.jpeg](images/RoadTrip06-13JUN26/IMG_2301.jpeg)
 ### Leavenworth
