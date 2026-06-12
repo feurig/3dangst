@@ -7,6 +7,8 @@ For my birthday I decided to the week take the barroness to Eastern Washington a
 ### Hanford Reservation
 ![IMG_2129.jpeg](images/RoadTrip06-13JUN26/IMG_2129.jpeg)
 ![IMG_2131.jpeg](images/RoadTrip06-13JUN26/IMG_2131.jpeg)
+### Wrong turn. OTOH it would not be a proper trip home without at least 15 miles of gravel
+![IMG_2283.jpeg](images/RoadTrip06-13JUN26/IMG_2283.jpeg)
 ### Ewan
 ![IMG_2133.jpeg](images/RoadTrip06-13JUN26/IMG_2133.jpeg)
 ![IMG_2134.jpeg](images/RoadTrip06-13JUN26/IMG_2134.jpeg)
@@ -72,8 +74,6 @@ The room in the Davenport.
 ![IMG_2275.jpeg](images/RoadTrip06-13JUN26/IMG_2275.jpeg)
 ![IMG_2277.jpeg](images/RoadTrip06-13JUN26/IMG_2277.jpeg)
 ![IMG_2282.PNG](images/RoadTrip06-13JUN26/IMG_2282.PNG)
-### Move this to before ewan. This was the gravel
-![IMG_2283.jpeg](images/RoadTrip06-13JUN26/IMG_2283.jpeg)
 ![IMG_2285.jpeg](images/RoadTrip06-13JUN26/IMG_2285.jpeg)
 ![IMG_2288.jpeg](images/RoadTrip06-13JUN26/IMG_2288.jpeg)
 ![IMG_2289.jpeg](images/RoadTrip06-13JUN26/IMG_2289.jpeg)
