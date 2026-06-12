@@ -47,14 +47,18 @@ The room in the Davenport.
 ![IMG_2204.jpeg](images/RoadTrip06-13JUN26/IMG_2204.jpeg)
 ![IMG_2206.jpeg](images/RoadTrip06-13JUN26/IMG_2206.jpeg)
 ![IMG_2210.jpeg](images/RoadTrip06-13JUN26/IMG_2210.jpeg)
+## Wednesday -- back to St John
 ![IMG_2211.jpeg](images/RoadTrip06-13JUN26/IMG_2211.jpeg)
 ![IMG_2212.jpeg](images/RoadTrip06-13JUN26/IMG_2212.jpeg)
+### Scotts in Idaho (didn't go there)
 ![IMG_2214.JPG](images/RoadTrip06-13JUN26/IMG_2214.JPG)
 ![IMG_2216.jpeg](images/RoadTrip06-13JUN26/IMG_2216.jpeg)
 ![IMG_2217.jpeg](images/RoadTrip06-13JUN26/IMG_2217.jpeg)
+### The wheel in my first real job and commute
 ![IMG_2218.jpeg](images/RoadTrip06-13JUN26/IMG_2218.jpeg)
 ![IMG_2219.jpeg](images/RoadTrip06-13JUN26/IMG_2219.jpeg)
 ![IMG_2220.jpeg](images/RoadTrip06-13JUN26/IMG_2220.jpeg)
+### The Saint John Historical Museum and the HS.
 ![IMG_2221.jpeg](images/RoadTrip06-13JUN26/IMG_2221.jpeg)
 ![IMG_2237.jpeg](images/RoadTrip06-13JUN26/IMG_2237.jpeg)
 ![IMG_2240.jpeg](images/RoadTrip06-13JUN26/IMG_2240.jpeg)
@@ -68,6 +72,7 @@ The room in the Davenport.
 ![IMG_2275.jpeg](images/RoadTrip06-13JUN26/IMG_2275.jpeg)
 ![IMG_2277.jpeg](images/RoadTrip06-13JUN26/IMG_2277.jpeg)
 ![IMG_2282.PNG](images/RoadTrip06-13JUN26/IMG_2282.PNG)
+### Move this to before ewan. This was the gravel
 ![IMG_2283.jpeg](images/RoadTrip06-13JUN26/IMG_2283.jpeg)
 ![IMG_2285.jpeg](images/RoadTrip06-13JUN26/IMG_2285.jpeg)
 ![IMG_2288.jpeg](images/RoadTrip06-13JUN26/IMG_2288.jpeg)
@@ -76,15 +81,22 @@ The room in the Davenport.
 ![IMG_2292.jpeg](images/RoadTrip06-13JUN26/IMG_2292.jpeg)
 ![IMG_2294.jpeg](images/RoadTrip06-13JUN26/IMG_2294.jpeg)
 ![IMG_2295.jpeg](images/RoadTrip06-13JUN26/IMG_2295.jpeg)
+## Thursday Cashmere to Seattle
+### This was $30 more than sleeping on the ground at a national park
 ![IMG_2301.jpeg](images/RoadTrip06-13JUN26/IMG_2301.jpeg)
+### Leavenworth
+#### Sassy (the dog)
 ![IMG_2302.jpeg](images/RoadTrip06-13JUN26/IMG_2302.jpeg)
 ![IMG_2303.jpeg](images/RoadTrip06-13JUN26/IMG_2303.jpeg)
 ![IMG_2304.jpeg](images/RoadTrip06-13JUN26/IMG_2304.jpeg)
 ![IMG_2305.jpeg](images/RoadTrip06-13JUN26/IMG_2305.jpeg)
 ![IMG_2306.jpeg](images/RoadTrip06-13JUN26/IMG_2306.jpeg)
 ![IMG_2307.jpeg](images/RoadTrip06-13JUN26/IMG_2307.jpeg)
+### Arrived at Seattle.
 ![IMG_2308.jpeg](images/RoadTrip06-13JUN26/IMG_2308.jpeg)
 ![IMG_2309.jpeg](images/RoadTrip06-13JUN26/IMG_2309.jpeg)
+#### The soccer was everywhere
 ![IMG_2310.jpeg](images/RoadTrip06-13JUN26/IMG_2310.jpeg)
 ![signal-2026-06-11-204917.jpeg](images/RoadTrip06-13JUN26/signal-2026-06-11-204917.jpeg)
+#### But here
 ![IMG_2311.jpeg](images/RoadTrip06-13JUN26/IMG_2311.jpeg)
