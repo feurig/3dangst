@@ -52,7 +52,7 @@ The room in the Davenport.
 ## Wednesday -- back to St John
 ![IMG_2211.jpeg](images/RoadTrip06-13JUN26/IMG_2211.jpeg)
 ![IMG_2212.jpeg](images/RoadTrip06-13JUN26/IMG_2212.jpeg)
-### Scotts in Idaho (didn't go there)
+### Scott's in Idaho (I didn't go there)
 ![IMG_2214.JPG](images/RoadTrip06-13JUN26/IMG_2214.JPG)
 ![IMG_2216.jpeg](images/RoadTrip06-13JUN26/IMG_2216.jpeg)
 ![IMG_2217.jpeg](images/RoadTrip06-13JUN26/IMG_2217.jpeg)
