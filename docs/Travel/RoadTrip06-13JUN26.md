@@ -1,5 +1,5 @@
 # Road trip 06-13 June 2026
-For my birthday I decided to the week take the barroness to Eastern Washington and then up to Seattle. Three days of riding. Three days in Spokane. And three in Seattle.
+For my birthday I decided to take the week off of work and ride the barroness to Eastern Washington and then up to Seattle. Three days of riding. Three days in Spokane. And three in Seattle.
 
 ## Saturday 06 June
 ![IMG_2125.jpeg](images/RoadTrip06-13JUN26/IMG_2125.jpeg)
@@ -56,7 +56,7 @@ The room in the Davenport.
 ![IMG_2214.JPG](images/RoadTrip06-13JUN26/IMG_2214.JPG)
 ![IMG_2216.jpeg](images/RoadTrip06-13JUN26/IMG_2216.jpeg)
 ![IMG_2217.jpeg](images/RoadTrip06-13JUN26/IMG_2217.jpeg)
-### The wheel in my first real job and commute
+### The Wheel Inn, my first real job and commute
 ![IMG_2218.jpeg](images/RoadTrip06-13JUN26/IMG_2218.jpeg)
 ![IMG_2219.jpeg](images/RoadTrip06-13JUN26/IMG_2219.jpeg)
 ![IMG_2220.jpeg](images/RoadTrip06-13JUN26/IMG_2220.jpeg)
