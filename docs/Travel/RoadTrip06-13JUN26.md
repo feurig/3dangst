@@ -2,6 +2,8 @@
 For my birthday I decided to take the week off of work and ride the barroness to Eastern Washington and then up to Seattle. Three days of riding. Three days in Spokane. And three in Seattle.
 
 ## Saturday 06 June
+[<img src=images/RoadTrip06-13JUN26/SaturdayMap.png>](https://www.google.com/maps/d/embed?mid=12v2C_NUQLGyK_eps6tjZ8m3mNCdOMkQ&hl=en&ehbc=2E312F")
+
 ![IMG_2125.jpeg](images/RoadTrip06-13JUN26/IMG_2125.jpeg)
 ![IMG_2127.jpeg](images/RoadTrip06-13JUN26/IMG_2127.jpeg)
 ### Hanford Reservation
