@@ -149,3 +149,14 @@ The room in the Davenport.
 #### Though if I were developing a self parking algorythm I would not get anywhere as near to someone motorcycle as this car did.
 You have no idea what some one who doesn't have the big steel box around them will do to you if you mess with their Motorcycle.
 ![IMG_2361.jpeg](images/RoadTrip06-13JUN26/IMG_2361.jpeg)
+## Saturday
+### Ferry to Bainbridge 
+![IMG_2362.jpeg](images/RoadTrip06-13JUN26/IMG_2362.jpeg)
+![IMG_2365.jpeg](images/RoadTrip06-13JUN26/IMG_2365.jpeg)
+![IMG_2366.jpeg](images/RoadTrip06-13JUN26/IMG_2366.jpeg)
+![IMG_2367.PNG](images/RoadTrip06-13JUN26/IMG_2367.PNG)
+![IMG_2369.jpeg](images/RoadTrip06-13JUN26/IMG_2369.jpeg)
+![IMG_2370.jpeg](images/RoadTrip06-13JUN26/IMG_2370.jpeg)
+![IMG_2376.jpeg](images/RoadTrip06-13JUN26/IMG_2376.jpeg)
+![IMG_2377.jpeg](images/RoadTrip06-13JUN26/IMG_2377.jpeg)
+![IMG_2379.jpeg](images/RoadTrip06-13JUN26/IMG_2379.jpeg)
