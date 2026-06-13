@@ -105,15 +105,17 @@ The room in the Davenport.
 #### But here
 ![IMG_2311.jpeg](images/RoadTrip06-13JUN26/IMG_2311.jpeg)
 ## Saturday the day at which I turned 62
-### Had toast and coffee with a fella whos kid was a bit fan of laika
+### Had toast and coffee with a fella whos kid was a big fan of laika
 ![IMG_2313.jpeg](images/RoadTrip06-13JUN26/IMG_2313.jpeg)
 ### Then moved the barroness to a very expensive all day lot (at Pike Market)
 ![IMG_2314.jpeg](images/RoadTrip06-13JUN26/IMG_2314.jpeg)
 ### Then went on to find what was left of belltown
-The disparity between the gentry and the fied could not be more readily apparent.
+#### The disparity between the gentry and the fied could not be more readily apparent.
 ![IMG_2315.jpeg](images/RoadTrip06-13JUN26/IMG_2315.jpeg)
 ![IMG_2317.jpeg](images/RoadTrip06-13JUN26/IMG_2317.jpeg)
+#### On the other hand they had better authentic German food than Leavenworth(tm)
 ![IMG_2318.jpeg](images/RoadTrip06-13JUN26/IMG_2318.jpeg)
+#### But yeah Gentry amongst the fried
 ![IMG_2320.jpeg](images/RoadTrip06-13JUN26/IMG_2320.jpeg)
 ![IMG_2321.jpeg](images/RoadTrip06-13JUN26/IMG_2321.jpeg)
 ![IMG_2322.jpeg](images/RoadTrip06-13JUN26/IMG_2322.jpeg)
