@@ -104,8 +104,8 @@ The room in the Davenport.
 ![signal-2026-06-11-204917.jpeg](images/RoadTrip06-13JUN26/signal-2026-06-11-204917.jpeg)
 #### But here
 ![IMG_2311.jpeg](images/RoadTrip06-13JUN26/IMG_2311.jpeg)
-## Saturday the day at which I turned 62
-### Had toast and coffee with a fella whos kid was a big fan of laika
+## Friday the day at which I turned 62
+### Had toast and coffee with a fella from bend and his kid who was a big fan of laika
 ![IMG_2313.jpeg](images/RoadTrip06-13JUN26/IMG_2313.jpeg)
 ### Then moved the barroness to a very expensive all day lot (at Pike Market)
 ![IMG_2314.jpeg](images/RoadTrip06-13JUN26/IMG_2314.jpeg)
