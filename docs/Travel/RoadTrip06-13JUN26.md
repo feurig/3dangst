@@ -104,3 +104,46 @@ The room in the Davenport.
 ![signal-2026-06-11-204917.jpeg](images/RoadTrip06-13JUN26/signal-2026-06-11-204917.jpeg)
 #### But here
 ![IMG_2311.jpeg](images/RoadTrip06-13JUN26/IMG_2311.jpeg)
+## Saturday the day at which I turned 62
+### Had toast and coffee with a fella whos kid was a bit fan of laika
+![IMG_2313.jpeg](images/RoadTrip06-13JUN26/IMG_2313.jpeg)
+### Then moved the barroness to a very expensive all day lot (at Pike Market)
+![IMG_2314.jpeg](images/RoadTrip06-13JUN26/IMG_2314.jpeg)
+### Then went on to find what was left of belltown
+The disparity between the gentry and the fied could not be more readily apparent.
+![IMG_2315.jpeg](images/RoadTrip06-13JUN26/IMG_2315.jpeg)
+![IMG_2317.jpeg](images/RoadTrip06-13JUN26/IMG_2317.jpeg)
+![IMG_2318.jpeg](images/RoadTrip06-13JUN26/IMG_2318.jpeg)
+![IMG_2320.jpeg](images/RoadTrip06-13JUN26/IMG_2320.jpeg)
+![IMG_2321.jpeg](images/RoadTrip06-13JUN26/IMG_2321.jpeg)
+![IMG_2322.jpeg](images/RoadTrip06-13JUN26/IMG_2322.jpeg)
+![IMG_2323.jpeg](images/RoadTrip06-13JUN26/IMG_2323.jpeg)
+![IMG_2324.jpeg](images/RoadTrip06-13JUN26/IMG_2324.jpeg)
+![IMG_2325.jpeg](images/RoadTrip06-13JUN26/IMG_2325.jpeg)
+![IMG_2326.jpeg](images/RoadTrip06-13JUN26/IMG_2326.jpeg)
+#### This used to be where you used to eat food court junk and watch the tourists come and go.
+![IMG_2328.jpeg](images/RoadTrip06-13JUN26/IMG_2328.jpeg)
+### I remember spending a lot of time in my PJs outside of Nordies drinking espresso
+![IMG_2329.jpeg](images/RoadTrip06-13JUN26/IMG_2329.jpeg)
+### Went to Orange Dracula where Chad told me where the old bars and resturanuts moved.
+![IMG_2330.jpeg](images/RoadTrip06-13JUN26/IMG_2330.jpeg)
+### Then went to find the ever illusive John Hawkley. 
+![IMG_2331.jpeg](images/RoadTrip06-13JUN26/IMG_2331.jpeg)
+![IMG_2332.jpeg](images/RoadTrip06-13JUN26/IMG_2332.jpeg)
+### After a quick shower I geared up and went to have dinner and hang out with Troy Swanson...
+![IMG_2334.jpeg](images/RoadTrip06-13JUN26/IMG_2334.jpeg)
+![IMG_2336.jpeg](images/RoadTrip06-13JUN26/IMG_2336.jpeg)
+![IMG_2340.jpeg](images/RoadTrip06-13JUN26/IMG_2340.jpeg)
+![IMG_2342.jpeg](images/RoadTrip06-13JUN26/IMG_2342.jpeg)
+![IMG_2345.jpeg](images/RoadTrip06-13JUN26/IMG_2345.jpeg)
+![IMG_2347.jpeg](images/RoadTrip06-13JUN26/IMG_2347.jpeg)
+![IMG_2351.jpeg](images/RoadTrip06-13JUN26/IMG_2351.jpeg)
+![IMG_2353.jpeg](images/RoadTrip06-13JUN26/IMG_2353.jpeg)
+![IMG_2356.jpeg](images/RoadTrip06-13JUN26/IMG_2356.jpeg)
+![IMG_2357.jpeg](images/RoadTrip06-13JUN26/IMG_2357.jpeg)
+![IMG_2359.jpeg](images/RoadTrip06-13JUN26/IMG_2359.jpeg)
+### The Bike and I survived.
+![IMG_2360.jpeg](images/RoadTrip06-13JUN26/IMG_2360.jpeg)
+#### Though if I were developing a self parking algorythm I would not get anywhere as near to someone motorcycle as this car did.
+You have no idea what some one who doesn't have the big steel box around them will do to you if you mess with their Motorcycle.
+![IMG_2361.jpeg](images/RoadTrip06-13JUN26/IMG_2361.jpeg)
