@@ -198,7 +198,8 @@ You have no idea what some one who doesn't have the big steel box around them wi
 ![IMG_A2471.jpeg](images/RoadTrip06-13JUN26/IMG_A2471.jpeg)
 ![IMG_A2473.jpeg](images/RoadTrip06-13JUN26/IMG_A2473.jpeg)
 ![IMG_A2474.jpeg](images/RoadTrip06-13JUN26/IMG_A2474.jpeg)
-## Sunday Heading Home. (map here soon)
+## Sunday Heading Home.
+[![Click to go to map](images/RoadTrip06-13JUN26/thewayhome.png)](https://www.google.com/maps/d/edit?mid=1RPafV8E8Ec7lMqF_obiGa0L95mDg1_U&usp=sharing)
 ![IMG_A2476.jpeg](images/RoadTrip06-13JUN26/IMG_A2476.jpeg)
 ![IMG_A2478.jpeg](images/RoadTrip06-13JUN26/IMG_A2478.jpeg)
 ![IMG_A2479.jpeg](images/RoadTrip06-13JUN26/IMG_A2479.jpeg)
