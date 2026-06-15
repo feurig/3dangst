@@ -166,6 +166,7 @@ You have no idea what some one who doesn't have the big steel box around them wi
 ![IMG_2385.jpeg](images/RoadTrip06-13JUN26/IMG_2385.jpeg)
 ![IMG_2386.jpeg](images/RoadTrip06-13JUN26/IMG_2386.jpeg)
 ![IMG_2387.jpeg](images/RoadTrip06-13JUN26/IMG_2387.jpeg)
+#### Food and art at Smarty Pants
 ![IMG_2390.jpeg](images/RoadTrip06-13JUN26/IMG_2390.jpeg)
 ![IMG_2391.jpeg](images/RoadTrip06-13JUN26/IMG_2391.jpeg)
 ![IMG_2392.jpeg](images/RoadTrip06-13JUN26/IMG_2392.jpeg)
@@ -179,11 +180,13 @@ You have no idea what some one who doesn't have the big steel box around them wi
 ### Walking around and dinner
 ![IMG_A2399.jpeg](images/RoadTrip06-13JUN26/IMG_A2399.jpeg)
 ![IMG_A2400.jpeg](images/RoadTrip06-13JUN26/IMG_A2400.jpeg)
+#### Not sure that the next two photos arent related.
 ![IMG_A2406.jpeg](images/RoadTrip06-13JUN26/IMG_A2406.jpeg)
 ![IMG_A2407.jpeg](images/RoadTrip06-13JUN26/IMG_A2407.jpeg)
 ![IMG_A2410.jpeg](images/RoadTrip06-13JUN26/IMG_A2410.jpeg)
 ![IMG_A2413.jpeg](images/RoadTrip06-13JUN26/IMG_A2413.jpeg)
 ![IMG_A2416.jpeg](images/RoadTrip06-13JUN26/IMG_A2416.jpeg)
+#### There were like 4 blocks of e-bike variants passing by.
 ![IMG_A2434.jpeg](images/RoadTrip06-13JUN26/IMG_A2434.jpeg)
 ![IMG_A2444.jpeg](images/RoadTrip06-13JUN26/IMG_A2444.jpeg)
 ![IMG_A2447.jpeg](images/RoadTrip06-13JUN26/IMG_A2447.jpeg)
@@ -207,6 +210,7 @@ You have no idea what some one who doesn't have the big steel box around them wi
 ![IMG_A2481.jpeg](images/RoadTrip06-13JUN26/IMG_A2481.jpeg)
 ![IMG_A2482.jpeg](images/RoadTrip06-13JUN26/IMG_A2482.jpeg)
 ![IMG_A2483.jpeg](images/RoadTrip06-13JUN26/IMG_A2483.jpeg)
+### This was pretty typical for milage (mix of city and freeway)
 ![IMG_A2484.PNG](images/RoadTrip06-13JUN26/IMG_A2484.PNG)
 ## Home.
 ![IMG_A2485.jpeg](images/RoadTrip06-13JUN26/IMG_A2485.jpeg)
