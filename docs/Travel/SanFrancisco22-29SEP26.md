@@ -1,3 +1,6 @@
+# San Francisco / Mendocino 22-29 September 2026
+Flew into Sanfrancisco, Renting a car and driving to Menocino (WIP)
+## Tuesday -- Flying to SF 
 ![IMG_3730.mov](images/SanFrancisco22-29SEP26/IMG_3730.mov)
 ### Need to tell them Gina sent us. 
 ![IMG_3731.jpeg](images/SanFrancisco22-29SEP26/IMG_3731.jpeg)
@@ -12,6 +15,8 @@
 ![IMG_3747.jpeg](images/SanFrancisco22-29SEP26/IMG_3747.jpeg)
 ![IMG_3748.jpeg](images/SanFrancisco22-29SEP26/IMG_3748.jpeg)
 ![IMG_3749.jpeg](images/SanFrancisco22-29SEP26/IMG_3749.jpeg)
+## Wednesday -- Walking through Chinatown to Little Italy
+
 ### Breakfast
 ![IMG_3750.jpeg](images/SanFrancisco22-29SEP26/IMG_3750.jpeg)
 ![IMG_3751.jpeg](images/SanFrancisco22-29SEP26/IMG_3751.jpeg)
@@ -43,4 +48,5 @@
 ![IMG_3783.jpeg](images/SanFrancisco22-29SEP26/IMG_3783.jpeg)
 ![IMG_3785.jpeg](images/SanFrancisco22-29SEP26/IMG_3785.jpeg)
 ![IMG_3786.jpeg](images/SanFrancisco22-29SEP26/IMG_3786.jpeg)
+### A little over 3 Miles of walking and a streetcar ride. 
 ![wednesday-in-sf.jpg](images/SanFrancisco22-29SEP26/wednesday-in-sf.jpg)
