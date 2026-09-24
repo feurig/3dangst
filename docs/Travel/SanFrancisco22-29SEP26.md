@@ -50,3 +50,26 @@ Flew into Sanfrancisco, Renting a car and driving to Menocino (WIP)
 ![IMG_3786.jpeg](images/SanFrancisco22-29SEP26/IMG_3786.jpeg)
 ### A little over 3 Miles of walking and a streetcar ride. 
 ![wednesday-in-sf.jpg](images/SanFrancisco22-29SEP26/wednesday-in-sf.jpg)
+### Dinner at Ryoko and drinks at Tunnel Top.
+![IMG_0562.jpg](images/SanFrancisco22-29SEP26/IMG_0562.jpg)
+![IMG_0565.jpg](images/SanFrancisco22-29SEP26/IMG_0565.jpg)
+![IMG_0566.jpg](images/SanFrancisco22-29SEP26/IMG_0566.jpg)
+![IMG_3787.jpeg](images/SanFrancisco22-29SEP26/IMG_3787.jpeg)
+![IMG_3788.jpeg](images/SanFrancisco22-29SEP26/IMG_3788.jpeg)
+### Super Creapy "boys" club (Bohemian Club)
+![IMG_3789.jpeg](images/SanFrancisco22-29SEP26/IMG_3789.jpeg)
+![IMG_3790.jpeg](images/SanFrancisco22-29SEP26/IMG_3790.jpeg)
+### Awesome Sushi!
+![IMG_3792.jpeg](images/SanFrancisco22-29SEP26/IMG_3792.jpeg)
+![IMG_3793.jpeg](images/SanFrancisco22-29SEP26/IMG_3793.jpeg)
+![IMG_3797.jpeg](images/SanFrancisco22-29SEP26/IMG_3797.jpeg)
+![IMG_3799.jpeg](images/SanFrancisco22-29SEP26/IMG_3799.jpeg)
+![IMG_3801.jpeg](images/SanFrancisco22-29SEP26/IMG_3801.jpeg)
+### This made me think of Dave Johnson for some reason.
+![IMG_3803.jpeg](images/SanFrancisco22-29SEP26/IMG_3803.jpeg)
+![IMG_3804.jpeg](images/SanFrancisco22-29SEP26/IMG_3804.jpeg)
+### Tunnel Top.
+The hotel said if we wanted a drink to go [here](https://tunneltop.bar). 
+![IMG_3807.jpeg](images/SanFrancisco22-29SEP26/IMG_3807.jpeg)
+#### Dorukahn our excellent bartender.
+![IMG_3808.jpeg](images/SanFrancisco22-29SEP26/IMG_3808.jpeg)
