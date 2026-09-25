@@ -121,3 +121,8 @@ The hotel said if we wanted a drink to go [here](https://tunneltop.bar).
 ![IMG_3889.jpeg](images/SanFrancisco22-29SEP26/IMG_3889.jpeg)
 ![IMG_3890.jpeg](images/SanFrancisco22-29SEP26/IMG_3890.jpeg)
 ![Thursday-part-1.jpg](images/SanFrancisco22-29SEP26/Thursday-part-1.jpg)
+### Pizza and cocktails within a block of our hotel.
+![IMG_3892.jpeg](images/SanFrancisco22-29SEP26/IMG_3892.jpeg)
+![IMG_3894.jpeg](images/SanFrancisco22-29SEP26/IMG_3894.jpeg)
+![IMG_3895.jpeg](images/SanFrancisco22-29SEP26/IMG_3895.jpeg)
+![IMG_3899.jpeg](images/SanFrancisco22-29SEP26/IMG_3899.jpeg)
