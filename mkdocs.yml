@@ -20,7 +20,7 @@ extra:
   homepage: https://www.3dangst.com
   generator: true
 
-copyright: Copyright &copy; 2016 - 2025 D. Delmar Davis
+copyright: Copyright &copy; 2016 - 2027 D. Delmar Davis
 
 plugins:
     - search
