@@ -225,7 +225,6 @@ The hotel said if we wanted a drink to go [here](https://tunneltop.bar).
 ![IMG_4017.jpeg](images/SanFrancisco22-29SEP26/IMG_4017.jpeg)
 ![IMG_4018.jpeg](images/SanFrancisco22-29SEP26/IMG_4018.jpeg)
 ![IMG_4025.jpeg](images/SanFrancisco22-29SEP26/IMG_4025.jpeg)
-![IMG_4027.jpeg](images/SanFrancisco22-29SEP26/IMG_4027.jpeg)
 ![IMG_4029.jpeg](images/SanFrancisco22-29SEP26/IMG_4029.jpeg)
 ![IMG_4031.jpeg](images/SanFrancisco22-29SEP26/IMG_4031.jpeg)
 ![IMG_4032.jpeg](images/SanFrancisco22-29SEP26/IMG_4032.jpeg)
