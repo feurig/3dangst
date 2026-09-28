@@ -277,4 +277,5 @@ The hotel said if we wanted a drink to go [here](https://tunneltop.bar).
 ![IMG_4110.jpeg](images/SanFrancisco22-29SEP26/IMG_4110.jpeg)
 ![IMG_4113.jpeg](images/SanFrancisco22-29SEP26/IMG_4113.jpeg)
 ![IMG_4115.jpeg](images/SanFrancisco22-29SEP26/IMG_4115.jpeg)
+### The phone battery died (the straight line)
 ![sunday.png](images/SanFrancisco22-29SEP26/sunday.png)
