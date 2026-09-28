@@ -279,3 +279,13 @@ The hotel said if we wanted a drink to go [here](https://tunneltop.bar).
 ![IMG_4115.jpeg](images/SanFrancisco22-29SEP26/IMG_4115.jpeg)
 ### The phone battery died (the straight line)
 ![sunday.png](images/SanFrancisco22-29SEP26/sunday.png)
+## Monday Back to SF.
+![back2sf.jpg](images/SanFrancisco22-29SEP26/back2sf.jpg)
+![IMG_4118.jpeg](images/SanFrancisco22-29SEP26/IMG_4118.jpeg)
+![IMG_4119.jpeg](images/SanFrancisco22-29SEP26/IMG_4119.jpeg)
+![IMG_4120.jpeg](images/SanFrancisco22-29SEP26/IMG_4120.jpeg)
+![IMG_4121.jpeg](images/SanFrancisco22-29SEP26/IMG_4121.jpeg)
+![IMG_4122.jpeg](images/SanFrancisco22-29SEP26/IMG_4122.jpeg)
+![IMG_4123.jpeg](images/SanFrancisco22-29SEP26/IMG_4123.jpeg)
+![IMG_4124.jpeg](images/SanFrancisco22-29SEP26/IMG_4124.jpeg)
+![IMG_4126.jpeg](images/SanFrancisco22-29SEP26/IMG_4126.jpeg)
