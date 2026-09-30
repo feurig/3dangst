@@ -323,3 +323,9 @@ The hotel said if we wanted a drink to go [here](https://tunneltop.bar).
 ![IMG_4154.jpeg](images/SanFrancisco22-29SEP26/IMG_4154.jpeg)
 ### Location services get funky data in the bart tunnels
 ![sunday-morning.jpg](images/SanFrancisco22-29SEP26/sunday-morning.jpg)
+![IMG_4155.jpeg](images/SanFrancisco22-29SEP26/IMG_4155.jpeg)
+![IMG_4161.jpeg](images/SanFrancisco22-29SEP26/IMG_4161.jpeg)
+![IMG_4162.jpeg](images/SanFrancisco22-29SEP26/IMG_4162.jpeg)
+![IMG_4164.jpeg](images/SanFrancisco22-29SEP26/IMG_4164.jpeg)
+![IMG_4166.jpeg](images/SanFrancisco22-29SEP26/IMG_4166.jpeg)
+![IMG_4167.jpeg](images/SanFrancisco22-29SEP26/IMG_4167.jpeg)
